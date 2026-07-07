@@ -4,7 +4,8 @@
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/07dd7fe8-cc1e-4ae9-8ed0-128e69ad0deb" />
 ₊˚ ✧ ━━━━━━⊱⋆⊰━━━━━ ✧ ₊˚
-..𓂃 ࣪ ִֶָ🪽་༘࿐
+
+  ..𓂃 ࣪ ִֶָ🪽་༘࿐
  
    ‘  𝓁ℯ𝓉   𝓈𝒾𝓁ℯ𝓃𝒸ℯ   
    𝓈𝓅ℯ𝒶𝓀 .  .  .  ‘
