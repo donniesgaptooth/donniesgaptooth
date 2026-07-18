@@ -1,22 +1,24 @@
-  ₊˚ ✧ ━━━━━━⊱⋆⊰━━━━━ ✧ ₊˚
-<img width="640" height="225" alt="image" src="https://github.com/user-attachments/assets/bfeb3764-b388-4c1c-943c-72467a4be9e5" />
+  ₊˚ ✧ ━━━━━━⊱⋆⊰━━━━━ ✧ ₊˚ 
+  <img width="640" height="232" alt="image" src="https://github.com/user-attachments/assets/019d30a0-cb21-4941-9921-f620e9bbb92d" />
 
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-<img width="640" height="364" alt="image" src="https://github.com/user-attachments/assets/0a563853-3a14-4ad0-a53c-725fd84f121c" />
+
+·:*¨༺ ♱✮♱ ༻¨*:·
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/7a176fe9-1cd1-4122-aa38-cdd1b43b51ab" />
+
 
 ₊˚ ✧ ━━━━━━⊱⋆⊰━━━━━ ✧ ₊˚
 
-  ..𓂃 ࣪ ִֶָ🪽་༘࿐
+  ⛧°。 ⋆༺♱༻⋆。 °⛧
  
-   ‘  𝓁ℯ𝓉   𝓈𝒾𝓁ℯ𝓃𝒸ℯ   
-   𝓈𝓅ℯ𝒶𝓀 .  .  .  ‘
+   ‘ 𝔱𝔥𝔢 𝔣𝔬𝔯𝔠𝔢 𝔰𝔢𝔯𝔳𝔢𝔰 𝔪𝔢 . . . ‘
                          
 
-𝒾 𝓁ℴ𝓋ℯ 𝓈𝒾𝓁ℯ𝓃𝓉 𝓈𝒶𝓁𝓉 ♡
+𝔦 𝔩𝔬𝔳𝔢 𝔪𝔞𝔲𝔩 ♡
 
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-<img width="1280" height="450" alt="image" src="https://github.com/user-attachments/assets/c64aeace-d61f-4544-9ed9-c8933ff34ad3" />
+·:*¨༺ ♱✮♱ ༻¨*:·
+<img width="640" height="232" alt="image" src="https://github.com/user-attachments/assets/cdd0d78e-23a9-4608-91ab-1f98b9062bd2" />
+
 
 ₊˚ ✧ ━━━━━━⊱⋆⊰━━━━━ ✧ ₊˚
