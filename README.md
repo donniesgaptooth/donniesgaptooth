@@ -1,5 +1,6 @@
   ₊˚ ✧ ━━━━━━⊱⋆⊰━━━━━ ✧ ₊˚ 
-  <img width="640" height="232" alt="image" src="https://github.com/user-attachments/assets/019d30a0-cb21-4941-9921-f620e9bbb92d" />
+ <img width="1280" height="463" alt="image" src="https://github.com/user-attachments/assets/3e9f8254-235c-4221-905e-068239a46751" />
+
 
 
 
