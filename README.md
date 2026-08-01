@@ -17,6 +17,8 @@
 
 𝔦 𝔩𝔬𝔳𝔢 𝔪𝔞𝔲𝔩 ♡
 
+@pt-walk-of-fame + @pt-hall-of-media certified wahoo!
+
 
 ·:*¨༺ ♱✮♱ ༻¨*:·
 <img width="640" height="232" alt="image" src="https://github.com/user-attachments/assets/cdd0d78e-23a9-4608-91ab-1f98b9062bd2" />
