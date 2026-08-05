@@ -17,7 +17,8 @@
 
 𝔦 𝔩𝔬𝔳𝔢 𝔪𝔞𝔲𝔩 ♡
 
-@pt-walk-of-fame + @pt-hall-of-media + @fans-town + @pt-contributors certified wahoo!
+account’s that have certified me : 
+pt-walk-of-fame + @pt-hall-of-media + @fans-town + @pt-contributors + pt-fashion
 
 
 ·:*¨༺ ♱✮♱ ༻¨*:·
