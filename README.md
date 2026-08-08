@@ -17,8 +17,8 @@
 
 𝔦 𝔩𝔬𝔳𝔢 𝔪𝔞𝔲𝔩 ♡
 
-account’s that have certified me : 
-pt-walk-of-fame + @pt-hall-of-media + @fans-town + @pt-contributors + pt-fashion
+account’s that have mentioned me : 
+pt-walk-of-fame + @pt-hall-of-media + @fans-town + @pt-contributors + @pt-fashion + @ponychievements
 
 
 ·:*¨༺ ♱✮♱ ༻¨*:·
